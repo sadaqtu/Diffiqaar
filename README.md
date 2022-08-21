@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+Text message from their homes for android tablet and decript and decript and decript the same as well done. 
 <!--
 **Diffiqaar/Diffiqaar** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
